@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @THOMEAUX27
-- 📫 You can reach me on insta:@death.and.strawberry
-- ⚡ Fun fact: You can live life your way
+- 👋 Hi, I’m @DeT Jones
+- 📫 You can reach me on insta:@hardhikorhuman_67
+- ⚡ Fun fact: Map is not the territory
 
 <!---
  is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
